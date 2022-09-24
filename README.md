@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Byte-Ollie
+- 👀 I’m interested in learning about anything that I think is cool enough to learn about.
+- 🌱 I’m currently learning about anything and everything.
+- 💞️ I’m looking to collaborate on nothing, I go solo :)
+- 📫 How to reach me, you can't.
